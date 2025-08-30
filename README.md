@@ -1,1 +1,1 @@
-# web-individual.gifhub.com.io
+# webindividual.gifhub.com.io
